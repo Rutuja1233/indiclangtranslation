@@ -1,2 +1,2 @@
 # indiclangtranslation
-Form  Audio type  file text  Value add file new file from local machine
+Explore our E-commerce Indic Language Translation project! Seamlessly translate UI, product descriptions, and more. Break language barriers and enhance user experience. Join us in fostering inclusivity!
